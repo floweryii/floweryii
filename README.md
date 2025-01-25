@@ -3,4 +3,4 @@
 
 <div align="center"> ━━╋ 8teen , ⟢KUNA or IGGY     ∿
 
-   🪽      ‧ .ᐟ    read my links !!  sukugo/goge antis dni 
+   🪽      ‧ .ᐟ    read my links !!  sukugo antis dni  vsrs.
