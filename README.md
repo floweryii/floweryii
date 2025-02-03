@@ -2,7 +2,7 @@
 
 ━━╋ 8teen , ⟢ LAIN or IGGY     ∿
 
-   🪽      ‧ .ᐟ    so at last lain is free and no longer needs to be anywhere. this is the way you wanted it do be, isn't it lain?
+   🪽      ‧ .ᐟ    so at last lain is free and no longer needs to be anywhere. this is the way you wanted it to be, isn't it lain?
 
 ![counter](https://komarev.com/ghpvc/?username=KYABAHO&label=HOW+MANY+ANGELS+VIEWED_MY+PAGE)
 
