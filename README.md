@@ -1,8 +1,8 @@
-![lain](https://github.com/user-attachments/assets/ebc31287-3d46-4e4f-a114-ac3470fa0781)
+![cookie](https://static.wikia.nocookie.net/cookierunkingdom/images/7/78/Fx_cutscene_beast_episode02_04_1.png/revision/latest?cb=20240302065838)
 
-━━╋ 8teen , ⟢ LAIN , LEE or IGGY     ∿
+━━╋ 8teen , ⟢ LEE or KANE     ∿
 
-   🪽      ‧ .ᐟ    so at last lain is free and no longer needs to be anywhere. this is the way you wanted it to be, isn't it lain?
+   🪽      ‧ .ᐟ    My power will not wane, as long as I fight to protect.
 
 ![counter](https://komarev.com/ghpvc/?username=KYABAHO&label=HOW+MANY+ANGELS+VIEWED_MY+PAGE)
 
