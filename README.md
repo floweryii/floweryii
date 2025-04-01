@@ -1,4 +1,4 @@
-<p align="center">━━╋ 8teen , ⟢ LEE or KANE     ∿</p>
+<p align="center"> ━━╋ 8teen , ⟢ LEE or LAIN     ∿</p>
 
 <p align="center">   🪽      ‧ .ᐟ    No matter where you go, everyone's connected.</p>
 
