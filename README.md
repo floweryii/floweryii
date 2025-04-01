@@ -1,4 +1,4 @@
-![cookie](https://static.wikia.nocookie.net/cookierunkingdom/images/7/78/Fx_cutscene_beast_episode02_04_1.png/revision/latest?cb=20240302065838)
+![](https://64.media.tumblr.com/f0bf5d3d60f3dbd295b3a122fb709491/ec9d74cc5698db10-a1/s2048x3072/4796c854326f590d66bdba164328d0dbd42a816e.jpg)
 
 <p align="center">━━╋ 8teen , ⟢ LEE or KANE     ∿</p>
 
